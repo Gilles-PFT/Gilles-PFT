@@ -18,4 +18,4 @@ and a guy **determine to innovate !**
 
 ## ⚡ Fun fact: 
 - I'm a musician(a bassist 🎸)
-- PFT is for _**Problem Focus Thinking**_ ☘️
+- PFT stands for _**Problem Focus Thinking**_ ☘️
